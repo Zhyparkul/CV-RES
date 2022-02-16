@@ -1,1 +1,1 @@
-# CV-RES deploed link
+# CV-RES deployed link
